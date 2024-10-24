@@ -3,7 +3,7 @@
 Then I talk some more shite about the economy of the world.
 Then I fuck myself up by overthinking.
 
-## Then I try to cey... I try to cry a lot, but I can't.
+## Then I try to cry... I try to cry a lot, but I can't.
 
 Please just fuck off then, this was only supposed to be a normal demo, Why the fuck am I trying to upload my sad files?
 Or I'll just fuck off here myself...
